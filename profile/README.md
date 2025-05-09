@@ -77,4 +77,4 @@
 - **Just for fun?** → FantasyGF  
 - **No frills?** → Kupid  
 
-**⬇️ Want check the most ranking AI site on your location based on data?** Check our **Chat Free:** SMARTLINK](https://t.slext1.com/156933/9403/0?target=reviews&aff_sub5=SF_006OG000004lmDN)  
+**⬇️ Want check the most ranking AI site on your location based on data?** Check our **Chat Free:** [SMARTLINK](https://t.slext1.com/156933/9403/0?target=reviews&aff_sub5=SF_006OG000004lmDN)  
