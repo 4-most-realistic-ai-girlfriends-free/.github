@@ -5,7 +5,7 @@
 ---
 
 ## 1. 🍬 **Candy AI** – Best Overall (Most Human-Like)  
-[![Candy AI Demo](https://via.placeholder.com/800x450/FF6B6B/FFFFFF?text=Candy+AI+Realistic+Example)](https://offerlink.com/candy)  
+[![Candy AI Demo](https://img.youtube.com/vi/1zLdPVtOngQ/maxresdefault.jpg)](https://offerlink.com/candy)  
 
 ### ✅ **Why It Dominates?**  
 - **Emotionally adaptive** (Detects mood shifts in your messages)  
