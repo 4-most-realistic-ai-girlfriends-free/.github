@@ -20,7 +20,7 @@
 ---
 
 ## 2. 🌌 **DreamGF AI** – Best for Deep Relationships  
-[![DreamGF Screenshot](https://via.placeholder.com/800x450/9C58D6/FFFFFF?text=DreamGF+Long-Term+Mode)](https://offerlink.com/dreamgf)  
+[![DreamGF Screenshot](https://eastbayexpress.com/wp-content/uploads/sites/15/2024/11/DreamGF-Mobile-768x768.jpg)](https://offerlink.com/dreamgf)  
 
 ### 💞 **Unique Advantages**  
 - **Relationship stages** (Dating → Moving in together)  
@@ -34,7 +34,7 @@
 ---
 
 ## 3. 🔥 **FantasyGF AI** – Best for Flirty Fun  
-[![FantasyGF Example](https://via.placeholder.com/800x450/E84A5F/FFFFFF?text=FantasyGF+Flirty+Chat)](https://offerlink.com/fantasygf)  
+[![FantasyGF Example](https://eastbayexpress.com/wp-content/uploads/sites/15/2024/11/FantasyGFAI-Mobile-768x768.jpg)](https://offerlink.com/fantasygf)  
 
 ### 🌶️ **NSFW Edge**  
 - **Uncensored roleplay** (Unlike Replika’s filters)  
@@ -48,7 +48,7 @@
 ---
 
 ## 4. 😊 **Kupid AI** – Best Lightweight Option  
-[![Kupid Chat Demo](https://via.placeholder.com/800x450/45B7D1/FFFFFF?text=Kupid+AI+Simple+Interface)](https://offerlink.com/kupid)  
+[![Kupid Chat Demo](https://img.youtube.com/vi/dm80Drd4SGw/maxresdefault.jpg)](https://offerlink.com/kupid)  
 
 ### 🏆 **For Casual Users**  
 - **Fast replies** (No over-engineered emotional baggage)  
