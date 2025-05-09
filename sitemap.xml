@@ -1,0 +1,15 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
+  <!-- Main GitHub Pages (Highest Priority) -->
+  <url>
+    <loc>https://github.com/4-most-realistic-ai-girlfriends-free/</loc>
+    <lastmod>2023-11-20</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>1.0</priority>
+  </url>
+  <!-- CDN Pages (Lower Priority) -->
+  <url>
+    <loc>https://cdn.jsdelivr.net/gh/4-most-realistic-ai-girlfriends-free/.github/profile</loc>
+    <priority>0.7</priority>
+  </url>
+</urlset>
